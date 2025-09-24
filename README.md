@@ -11,9 +11,7 @@ Location: 851 Star Rd, Helena, MT 59602, United States
 
 Phone Number: +14069165451
 
-[GMB Link: 
+]     [GMB Link:        [  https://maps.app.goo.gl/Ru2U87V66eugMmiCA
 ](https://maps.app.goo.gl/Ru2U87V66eugMmiCA)
-
-
 
 
